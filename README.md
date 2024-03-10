@@ -1,1 +1,1 @@
-this course work a log and exited pictures about the logo 
+This work contains one logo and three slider images all edited using adobe photoshop
